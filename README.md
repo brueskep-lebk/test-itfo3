@@ -10,7 +10,7 @@ Nilus war noch nicht hier
 
 Ich bin Trung
 
-Niklas auch dabei, Nilus auch
+Niklas auch dabei, Nius auch
 
 # Yannick war hier
 tes test test
