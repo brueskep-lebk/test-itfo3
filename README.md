@@ -2,8 +2,11 @@
 
 Ich hab's geschafft 👍
 
-Ich bin ritz und bin auch dabei 🥸
+Ich bin Moritz und bin auch dabei 🥸
+
 Hola
+
+Nilus war noch nicht hier
 
 Ich bin Trung
 
