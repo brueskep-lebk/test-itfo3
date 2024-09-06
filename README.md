@@ -2,6 +2,7 @@
 
 Ich hab's geschafft 👍
 
-Ich bin Moritz und bin auch dabei 🥸
+Ich bin ritz und bin auch dabei 🥸
+Hola
 
 Ich bin Trung
