@@ -10,9 +10,11 @@ Nilus war noch nicht hier
 
 Ich bin Trung
 
-Niklas auch dabei, Nilus auch
+Niklas auch dabei, Nius auch
 
 hiiiii
 
 # Yannick war hier
 tes test test
+
+Ramon spielt tft
